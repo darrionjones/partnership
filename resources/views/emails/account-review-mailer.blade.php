@@ -1,0 +1,1 @@
+Dear vendor, your application has been received. We'll notify you when your account is active. Thank you
